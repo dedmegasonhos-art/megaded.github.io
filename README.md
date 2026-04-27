@@ -1,2 +1,0 @@
-# megaded.github.io
-dedmegacontroles
